@@ -1,4 +1,4 @@
-### Hi there 👋
+### En pleine reconversion professionnelle, je me lance dans le développement web et mobile via la formation de l'école O'Clock qui débute le 14 septembre 2020 durant 6 mois! Attiré depuis mon jeune âge, dans le monde de l'informatique et du web, et plus récemment je me suis découvert un attrait assez notable dans le travail visuel ( le coté front d'un site, l'animation, la 3D ); j'ai toujours eu à cœur de m'épanouir dans ce monde là; de ce fait, j'ai hâte d'apprendre et découvrir ce métier passionnant en constante évolution! Ma curiosité et ma soif de nouvelles connaissances m'aident à repousser mes limites; à la fois perfectionniste et le sens du détail, rigoureux et appliqué, le sens de la logique et ambitieux; j'espère apporter la pierre à l'édifice avec mes futures collaborateurs!
 
 <!--
 **Gregory2811/Gregory2811** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
