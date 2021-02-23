@@ -6,6 +6,8 @@ Ma curiosité et ma soif de nouvelles connaissances m'aident à repousser mes li
 
 Bourge@gmx.fr 
 
+www.linkedin.com/in/grégory-bourges-3078621b5
+
 ![cover](https://github.com/Gregory2811/Gregory2811/blob/main/wallpaper%20(6).jpg)
 
 <!--
